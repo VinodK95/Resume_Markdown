@@ -51,3 +51,12 @@ I want become a `software developer`
  
 ### **Projects** 
 - Ratio Analysis -- Financial Project
+
+### **free online profile templates for resume**
+https://www.beautifullife.info/web-design/15-best-free-online-resumecv-website-templates-and-themes/
+
+https://superdevresources.com/html-resume-templates/
+
+https://colorlib.com/wp/html5-resume-templates/
+
+https://www.beautifullife.info/web-design/15-best-free-online-resumecv-website-templates-and-themes
